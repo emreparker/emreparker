@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-- 🔭 I’m a diligent and enthusiastic person whose goal is to combine contrasting fields of work with a distinctive frame of mind.
+- 🔭 I’m a diligent and an enthusiastic person whose goal is to combine contrasting fields of work with a distinctive frame of mind.
 - 📫 How to reach me: emrearsln@yahoo.com
 
 
